@@ -1,4 +1,3 @@
-                       **Dr. Jiangguli PENG**
 RWTH Aachen University, Germany | +49-15257376920 | [pjguli@163.com](mailto:pjguli@163.com)
 
 **SUMMARY**
