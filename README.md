@@ -1,4 +1,4 @@
-RWTH Aachen University, Germany | +49-15257376920 | [pjguli@163.com](mailto:pjguli@163.com)
+Dr.Jiangguli PENG | RWTH Aachen University, Germany | +49-15257376920 | [pjguli@163.com](mailto:pjguli@163.com)
 
 **SUMMARY**
 Detail-oriented researcher and engineer with nine years of hand-on experience in materials science, physics, chemistry, engineering and interdisciplinary research. I thrive on creative problem-solving and am adept at designing innovative solutions. Seeking roles in materials science and engineering, design, processing and R&D-focused positions where I can contribute my expertise and passion for innovation.
